@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @shirleyleng
+- 👀 I’m interested in finding ways to make the tools I use more efficient for productivity
+- ⚡ Fun fact: I have a lot of hobbies - coding, knitting, reading, gaming, optimizing my life
